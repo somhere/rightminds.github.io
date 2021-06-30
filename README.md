@@ -1,0 +1,1 @@
+# rightminds.github.io
